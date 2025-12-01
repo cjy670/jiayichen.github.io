@@ -3,9 +3,9 @@
 
 - First-Prize Graduate Academic Scholarship (CUMT).
 
--Shuren Scholarship.
+- Shuren Scholarship.
 
--Second Prize in the College Students' Innovation and Entrepreneurship Competition.
+- Second Prize in the College Students' Innovation and Entrepreneurship Competition.
 
 
 
