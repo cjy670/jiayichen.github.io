@@ -4,7 +4,7 @@ She is currently a Second-year full-time master's student at Dalian University o
 
 #### Contact
 
-Email: 3465370094@qq.com
+Email: 3465370094@qq.com  /  chenjy@mail.dlut.edu.cn
 
 #### Education
 
