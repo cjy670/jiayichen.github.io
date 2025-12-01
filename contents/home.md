@@ -8,7 +8,8 @@ Email: 3465370094@qq.com
 
 #### Education
 
-M.Sc.Candidate | Dalian University of Technology(DUT) | 2024-Present/
+M.Sc.Candidate | Dalian University of Technology(DUT) | 2024-Present
+
 B.Sc.Graduate | Central China Normal University(CCNU) | 2020-2024
 
 #### Research Interests
