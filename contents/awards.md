@@ -1,7 +1,7 @@
 
 - National Scholarship for Graduate Students (Ministry of Education, China).
 
-- First-Prize Graduate Academic Scholarship (CUMT).
+- Second-Prize Graduate Academic Scholarship (CUMT).
 
 - Shuren Scholarship.
 
